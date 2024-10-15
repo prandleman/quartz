@@ -39,7 +39,7 @@ While it's true that limerence tends to be more pronounced with an anxious attac
  
 # Seeking Other Relationships as a limerent
 
-Yes, a limerent individual might seek out other relationships, especially if their emotional needs are not being met by the person they're fixated on. This can happen for several reasons:
+A limerent individual might seek out other relationships if their emotional needs are not being met by the person they're fixated on. This can happen for several reasons:
  
 ###### 1. **Seeking Validation Elsewhere** :
 If the limerent person feels neglected or their feelings aren't reciprocated, they may look for emotional validation in other relationships. This could happen unconsciously as they try to fill the emotional void caused by their obsession with someone who isn't meeting their expectations.
